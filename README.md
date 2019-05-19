@@ -1,5 +1,9 @@
 # His Ambassadors
-my first design
-Jesus is Lord and the saviour of my life
 
-Im  studying DevOps
+   Now then we are ambassadors for christ,
+    as though God did Beseech you by us:
+     we pray you in Christ's stead,
+      be ye reconciled to God
+       Jesus is Lord and the saviour of my life
+
+
